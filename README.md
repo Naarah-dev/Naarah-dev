@@ -1,6 +1,6 @@
 # Hi there, I'm Naarah 👋
 
-![Banner](https://drive.google.com/file/d/1-j9CqrB4pZH0eiQx1QVJJAFgmRbZyED4/view?usp=sharing)
+![Banner](https://imgur.com/a/3sLUCVh)
 
 
 ## About Me
